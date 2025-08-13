@@ -1,6 +1,6 @@
 # 👋 Hey there! I'm **Satyajeet Salokhe**
 
-### 🎓 Student | 💻 Developer | 🌐 Web & Software Enthusiast
+### 🎓 Student 
 
 ---
 
